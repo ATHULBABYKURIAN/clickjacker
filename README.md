@@ -10,6 +10,8 @@ https://1.bp.blogspot.com/-bKjir1VPdFI/XTX-fPdFigI/AAAAAAAAAjw/3_KexpSQeCMQJmaSi
 
 ##**Usage**:
 
+Please Do Not Use These Programs for Illegal Purposes 
+
 ClickJacker.py
 
 
